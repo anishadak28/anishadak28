@@ -1,5 +1,5 @@
 # 💫 About Me:
-Currently I am a learner<br>Skill up my repository
+Wanna join up with me<br>To Skill up my repository
 
 
 ## 🌐 Socials:
